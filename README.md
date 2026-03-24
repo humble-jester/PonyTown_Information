@@ -1,4 +1,4 @@
-# Pony Town Information
+# Questions & Answers
 $${\color{blue}Q: \space "Can \space I \space sit \space with \space you?"}$$</br>
 A: Well, of course! You're always welcome to sit with me and my friends, if they're around. If I do have any sort of "DNI" and or "DNT", then please, refrain from interacting as a whole. Otherwise? C+H is always encouraged and you will be met with a friendly reaction from me upon doing so!
 
